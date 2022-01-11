@@ -4,7 +4,7 @@
 #### 4
 #### 5
 #### 6
-#### 7
+#### Bwa ha ha ha! Welcome, Captain mueller!
 #### 8
 #### 9
 #### 10
