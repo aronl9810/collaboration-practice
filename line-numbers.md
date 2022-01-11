@@ -6,7 +6,7 @@
 #### 6
 #### 7 Bwa ha ha ha! Welcome, Captain mueller!
 #### 8
-#### 9 Github is really good. 
+#### 9 Github is really awesome. 
 #### 10
 #### 11
 #### 12
