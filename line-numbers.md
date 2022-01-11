@@ -4,7 +4,7 @@
 #### 4
 #### 5 Cats come in different colors
 #### 6
-#### Bwa ha ha ha! Welcome, Captain mueller!
+#### 7 Bwa ha ha ha! Welcome, Captain mueller!
 #### 8
 #### 9
 #### 10
